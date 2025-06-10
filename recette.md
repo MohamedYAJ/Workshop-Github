@@ -29,3 +29,4 @@ Beurre 50 g fondu
 
 3 Versez une demi-louche de votre pâte à crêpe et faites cuire 1 à 2 minutes par face.
 &#x1F91D;
+Bonne appetie !
